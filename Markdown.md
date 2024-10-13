@@ -25,3 +25,5 @@ _Phở_ is a traditional Vietnamese noodle soup that delights the palate with it
 _Bún đậu mắn tôm_ is a unique Vietnamese dish featuring rice noodles, crispy fried tofu, porks meet and/or porks organs and the distinctive fermented shrimp paste known as **mắm tôm** with a very strong pundy smell. This bold combination offers a delightful mix of flavors and textures, highlighted by fresh herbs and vegetables, making it a must-try for adventurous eaters.
 
 > I personnally rate this dish 10/10 (_ps it's mt favorite that's why it's top1_)
+
+**Auther: Ha Cuong TRAN**
